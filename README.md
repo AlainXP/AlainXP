@@ -1,4 +1,4 @@
-## 　　　　 　　　　　𓏵　　　　  _Wemmbu_ 　　　 　　৴ ֶָ֢  🪽  
+## 　　　　 　　 𓏵　　　　  _Wemmbu_ 　　　 　　৴ ֶָ֢  🪽  
 
 ## <img src="https://cdn.discordapp.com/attachments/1438831438911770786/1450052176784261150/Untitled519_20251215170648_edit_148302181213791.png?ex=694121d3&is=693fd053&hm=bba642e000ccb658df3493ea5c5226eb0ceb28e4c15a66f11187669e71e4d3cd&" />
 
