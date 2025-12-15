@@ -11,7 +11,7 @@
 
 ## 　　　　　　　　　　<img height="200" src="https://cdn.discordapp.com/attachments/1438831438911770786/1450044130544713748/4fd0c049c173c9beb5a0101a84deb6f9.gif?ex=69411a55&is=693fc8d5&hm=ee58f046f1e3c7e8c7c125a6aed5115e37521e242c4ce1ccdbbec089199597bc&"/> 
 
-　　　　　　　　　　　　　　　　　« the power of — friendship ! »  “ I hate you . ”
+　　　　　　　　　　　　　　　« the power of — friendship ! »  “ I hate you . ”
 
 <img height="500" src="https://cdn.discordapp.com/attachments/1438831438911770786/1450036878496497735/Untitled519_20251215153032.png?ex=69411394&is=693fc214&hm=86d7d93b7fc330b2f50dc7ca7fa62b1f085b7048b6191062cb4f12adee7035ec&" />
 
