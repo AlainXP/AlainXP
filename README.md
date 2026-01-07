@@ -1,19 +1,19 @@
 ## 　　　　 　　 𓏵　　　　  _Wemmbu_ 　　　 　　৴ ֶָ֢  🪽  
 
-## <img src="https://cdn.discordapp.com/attachments/1438831438911770786/1450052176784261150/Untitled519_20251215170648_edit_148302181213791.png?ex=694121d3&is=693fd053&hm=bba642e000ccb658df3493ea5c5226eb0ceb28e4c15a66f11187669e71e4d3cd&" />
+## <img src="https://files.catbox.moe/q1nmt3.png" />
 
 
-## <img height="700" src="https://cdn.discordapp.com/attachments/1438831438911770786/1450036901229629511/Untitled519_20251215152730.png?ex=6950e599&is=694f9419&hm=319fb018553d07680e2c448194c036ba34977899500feb9c2584926e5705aa9b&" />
+## <img height="700" src="https://files.catbox.moe/495yyu.png" />
 
 𓏵　　　“ I don't think I've been more annoyed and upset
 
-　　　　　　　　　　　　　　　　playing minecraft than I am right now (T_T) <img height="1000" src="https://cdn.discordapp.com/attachments/1438831438911770786/1450046036591644682/0c31vq.gif?ex=69411c1b&is=693fca9b&hm=dbc75c371a3c619000793ff067266e5483d85476982b982be31c5866a1371d76&" />
+　　　　　　　　　　　　　　　　playing minecraft than I am right now (T_T) <img height="1000" src="https://files.catbox.moe/pqe3ze.gif" />
 
-## 　　　　　　　　　　<img height="200" src="https://cdn.discordapp.com/attachments/1438831438911770786/1450044130544713748/4fd0c049c173c9beb5a0101a84deb6f9.gif?ex=69411a55&is=693fc8d5&hm=ee58f046f1e3c7e8c7c125a6aed5115e37521e242c4ce1ccdbbec089199597bc&"/> 
+## 　　　　　　　　　　<img height="200" src="https://files.catbox.moe/xld50c.gif"/> 
 
 　　　　　　　　　　　　　　　« the power of — friendship ! »  “ I hate you . ”
  　　　　　　　　　　　　　　 [patreon](https://www.patreon.com/cw/Kenadian) ︶ [dni list](https://rentry.co/AlainXP) ︶ [boundaries](https://rentry.co/small1shbeanz) 
 
-<img height="500" src="https://cdn.discordapp.com/attachments/1438831438911770786/1450036878496497735/Untitled519_20251215153032.png?ex=6950e594&is=694f9414&hm=4146cca04e1c67be43efea827d37a3c8006e3e60464d94617b73e7c8885b26f0&" />
+<img height="500" src="https://files.catbox.moe/g6jj99.png" />
 
-<img src="https://cdn.discordapp.com/attachments/1438831438911770786/1450044115449544798/tumblr_478708a6f4e61fe4c8417b7934fe5541_49c9b775_2048.png?ex=69411a51&is=693fc8d1&hm=16ea888f248ca894c7a6c637632f3dbe18841c67ca5e209dde11e0bbef467246&" />
+<img src="https://files.catbox.moe/dwvh3p.png" />
